@@ -4,4 +4,5 @@
 
 ![image](https://github.com/leanne-tran89/ArcGis_Climate_Change/assets/115663530/e45f2469-91de-4740-85a1-e5ca72987cf8)
 
-![Uploading image.png…]()
+![image](https://github.com/leanne-tran89/ArcGis_Climate_Change/assets/115663530/3fdf4b48-dae7-42ca-9606-7688d390deec)
+
